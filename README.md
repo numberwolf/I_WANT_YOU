@@ -11,7 +11,3 @@
 
 #### 联系方式
 * 发送到邮箱：changyanlong01@baidu.com
-
-* 或者QQ：531365872
-
-* 微信：numberwolf11
